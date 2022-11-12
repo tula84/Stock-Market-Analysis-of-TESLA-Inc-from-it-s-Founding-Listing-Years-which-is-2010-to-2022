@@ -1,0 +1,1 @@
+# Stock-Market-Analysis-of-TESLA-Inc-from-it-s-Founding-Listing-Years-which-is-2010-to-2022
